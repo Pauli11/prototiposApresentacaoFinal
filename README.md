@@ -1,0 +1,1 @@
+Apresentação final da proposta do site geométrica, feita em vídeo. Duração 8 min. aproximadamente.
